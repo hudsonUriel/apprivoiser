@@ -13,5 +13,5 @@ Tu te tornas eternamente responsável por aquilo que cativas: o essencial é inv
 
 :kissing_heart:
 
-*Obrigado por me cativar, sweetie*
+*Obrigado por me cativar, meu anjo*
 
